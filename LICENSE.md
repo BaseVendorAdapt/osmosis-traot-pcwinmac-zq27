@@ -1,4 +1,4 @@
-# 
+# Open Source osmosis trading bot add-ons for Mac OS | Top osmosis trading bot add-ons for PC Windows. Featuring API integration and transaction signing — optimized for maximum performance on every platform.
 
 
 
